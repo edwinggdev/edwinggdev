@@ -1,1 +1,1 @@
-![edwinggdev Banner](https://www.ginga.cm.co/Downloas/banner.jpg)
+![edwinggdev Banner](https://www.ginga.cm.co/Downloads/banner.jpg)
